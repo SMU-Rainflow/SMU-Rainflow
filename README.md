@@ -1,11 +1,11 @@
-PhD or Postgraduate is not important.
+PhD or Postgraduate is not important.:disappointed:
 
-Knowledge and Experience are important.
+Knowledge and Experience are important.:relaxed:
 
-IELST or CET-4/6 is not important.
+IELST or CET-4/6 is not important.:disappointed:
 
-Comnuication, Reading and Writing is important.
+Comnuication, Reading and Writing is important.:relaxed:
 
-Title is not important.
+Title is not important.:disappointed:
 
-Good for society is important.
+Good for society is important.:relaxed:
