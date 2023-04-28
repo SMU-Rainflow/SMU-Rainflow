@@ -1,10 +1,11 @@
-- 👋 Hi, I’m @SMU-Rainflow
-- 👀 I’m interested in AIoT,Quant,Data Analyse.
-- 🌱 I’m currently working in a startUp company.
-- 💞️ I’m looking to collaborate on Quant.
-- 📫 yang.chen-aiot@foxmail.com
+PhD or Postgraduate is not important.
 
-<!---
-SMU-Rainflow/SMU-Rainflow is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Knowledge and Experience are important.
+
+IELST or CET-4/6 is not important.
+
+Comnuication, Reading and Writing is important.
+
+Title is not important.
+
+Good for society is important.
