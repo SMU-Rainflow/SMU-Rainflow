@@ -9,3 +9,5 @@ Comnuication, Reading and Writing is important.:relaxed:
 Title is not important.:disappointed:
 
 Good for society is important.:relaxed:
+
+I am creating a wonderful career, step by step.:grin:
