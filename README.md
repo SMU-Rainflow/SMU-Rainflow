@@ -4,7 +4,7 @@ Knowledge and Experience are important.:relaxed:
 
 IELST or CET-4/6 is not important.:disappointed:
 
-Comnuication, Reading and Writing is important.:relaxed:
+Comnuication, Reading and Writing are important.:relaxed:
 
 Title is not important.:disappointed:
 
